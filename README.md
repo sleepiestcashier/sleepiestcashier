@@ -13,4 +13,8 @@ SOURCEMATES PLEASE INT!
 >
 >MISC : You'll often be able to find me around the bakery or near spawn. I yumeship with John Doe from both Forsaken and the OG account (old appearance)! I am a furry yoooooooooooo!!!!!! I also LOVE to read GitHubs, strawpages, and pronouns pages so if you have any of those feel free to share it with me!
 >
+> My main ponies
+>
+> <img src="https://github.com/sleepiestcashier/sleepiestcashier/blob/main/pony-town-me%20irl%20_%20John%20yume%20_%20c_h_k%20enc-applause2-blinking-padded-4x.gif?raw=true" width=50 height=70><img src="https://github.com/sleepiestcashier/sleepiestcashier/blob/main/pony-town-mama's%20boy%20_%20c_h%20enc-dance-3-blinking-padded-ponyplush-4x.gif?raw=true" width=60 height=90>
+>
 >IGNORE THE AMOUNT OF COMMITS I WAS FIGURING THINGS OUT :sob:
