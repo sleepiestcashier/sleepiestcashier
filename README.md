@@ -11,4 +11,4 @@ SOURCEMATES PLEASE INT!
 >
 >BYI : Please note that I'm incredibly anxious when it comes to being social. I'm completely fine with you whispering me, cuddling me, and generally interacting with me but please DO NOT approach me with high energy out of the blue! That's a one-way ticket to being ignored, hidden, or completely blocked. If I approach you please don't immediately initiate conversation as I need time to warm up to being around you.
 >
->MISC : You'll often be able to find me around the bakery or near spawn. I yumeship with John Doe from both Forsaken and the OG account (old appearance)!
+>MISC : You'll often be able to find me around the bakery or near spawn. I yumeship with John Doe from both Forsaken and the OG account (old appearance)! IGNORE THE ABSURD AMOUNT OF COMMITS I WAS FIGURING THINGS OUT :sob:
