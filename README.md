@@ -1,4 +1,3 @@
-# ABOUT ME (WIP)
+  ME ME ME ! ! ! (SCROLL)
 
-![testing](https://github.com/sleepiestcashier/README.md/blob/main/Title_Friend.webp?raw=true)
-![testing](https://github.com/sleepiestcashier/README.md/blob/main/Friend_Elliot.webp?raw=true)
+<img src="[ME](https://github.com/sleepiestcashier/README.md/blob/main/Friend_Elliot.webp?raw=true)" width="300">
