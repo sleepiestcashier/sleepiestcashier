@@ -5,7 +5,7 @@ SOURCEMATES PLEASE INT!
 
 >Okay the actual about me. Hello there! I made this specifically for Pony Town.
 >
->ACTIVE INTERESTS INCLUDE : Forsaken, SEWH, Die of Death, Verity, DeivyDoesTutorials33, Grace
+>ACTIVE INTERESTS INCLUDE : Forsaken, SEWH, Die of Death, Verity, DeivyDoesTutorials33, Grace, Bad Things, Dave and Bambi, Wii Deleted You
 >
 >DNI : Basic DNI criteria (homo/transphobes, racists, creeps, zoophiles, pro/darkshippers...etc), doubles (unless I say you can int), problematic people supporters (e.g Qwelver, Simon, Souldrivenlove...), silence = awkward, spawnists, anti-furry/therian/otherkin/fictionkin
 >
