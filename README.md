@@ -1,7 +1,7 @@
   ME ME ME  ! ! !  DOUBLES DNI/IWEC
 
 <img src="https://github.com/sleepiestcashier/README.md/blob/main/Friend_Elliot.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/Screenshot%202026-07-25%2011.55.47%20PM.png?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/Noobnewest.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/NewEllRender.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/Exploitation_Icon.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/Hatred_Icon.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/Corrupted_Mii_takeover_art.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/nSzc2m_rBfQTkNza.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/if-im-not-wrong-if-john-grace-and-john-reprieve-exit-this-v0-pezfc4uncjsf1.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/IvanRender.webp?raw=true" width=100 height=100><img src="https://github.com/sleepiestcashier/README.md/blob/main/GeometrySquaredRender.webp?raw=true" width=100 height=100>
-SOURCEMATES PLEASE INT!
+
 
 >Okay the actual about me. Hello there! I made this specifically for Pony Town.
 
