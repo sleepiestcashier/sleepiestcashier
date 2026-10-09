@@ -7,7 +7,7 @@
 
 >ACTIVE INTERESTS INCLUDE : Forsaken, SEWH, Die of Death, Verity, DeivyDoesTutorials33, Grace, Bad Things, Dave and Bambi, Wii Deleted You, Just Shapes & Beats, The Pink Corruption, Block Tales
 
->DNI : Basic DNI criteria (homo/transphobes, racists, creeps, zoophiles, pro/darkshippers...etc), doubles (unless I say you can int), problematic people supporters (e.g Qwelver, Simon, Souldrivenlove...), silence = awkward, spawnists, anti-furry/therian/otherkin/fictionkin
+>DNI : Basic DNI criteria (homo/transphobes, racists, creeps, zoophiles, pro/darkshippers...etc), doubles (unless I say you can int), problematic people supporters (e.g Qwelver, Simon, Souldrivenlove...), silence = awkward, spawnists, anti-furry/therian/otherkin/fictionkin, if you claim to be Noob's #1 fan (either Forsaken or general Roblox)
 
 >BYI : Please note that I'm incredibly anxious when it comes to being social. I'm completely fine with you whispering me, cuddling me, and generally interacting with me but please DO NOT approach me with high energy out of the blue! That's a one-way ticket to being ignored, hidden, or completely blocked. If I approach you please don't immediately initiate conversation as I need time to warm up to being around you.
 
